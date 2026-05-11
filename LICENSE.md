@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Adobe Audition for macOS addon with ultimate Adobe Audition for macOS Addon | shortcut-customization + batch-rendering. Featuring shortcut-customization and
 
 
 
